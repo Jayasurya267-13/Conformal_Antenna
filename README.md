@@ -248,10 +248,10 @@ Search-and-rescue teams · Disaster-response personnel · Industrial safety team
 
 ## Team
 
-_Murali Shri rengan R
- Ajey adith A
- Deepan S K
- Abirami S
+_Murali Shri rengan R/
+ Ajey adith A/
+ Deepan S K/
+ Abirami S/
  Sairam J ._
 
 ---
